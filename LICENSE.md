@@ -1,4 +1,4 @@
-#  
+#  re:rangers x top Script offers the most advanced re:rangers x Script, with esp and unlimited stamina. Perfect for dominating any match.
 
 
 
